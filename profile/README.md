@@ -1,1 +1,1 @@
-https://cdn.discordapp.com/attachments/1163151908911988838/1164938531572043911/R_7.png?ex=6545088d&is=6532938d&hm=827d8ae5f617d5d2bda3956df61dfd8a781be43646eadc461ee60080e618bb09&
+https://th.bing.com/th/id/R.caa352f7453ebc1edfd4b7cce7da555c?rik=JGEQLSl%2f4i%2fOsQ&riu=http%3a%2f%2fimg2.wikia.nocookie.net%2f__cb20121016052306%2flogopedia%2fimages%2fc%2fce%2fClub_Penguin_Logo.png&ehk=G402jwW1ZX%2bbWrc%2bFGHak95EqwAGzS4vUUbrVl92h%2fg%3d&risl=&pid=ImgRaw&r=0
